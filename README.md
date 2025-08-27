@@ -17,6 +17,8 @@
 
 ![](https://github-readme-streak-stats.herokuapp.com/?user=tumainijames&theme=dark&hide_border=true)<br/>
 
+![](https://github-readme-streak-stats.herokuapp.com/?user=tumainijames&theme=dark&hide_border=true)<br/>
+
 
 
 ### ✍️ Random Dev Quote
